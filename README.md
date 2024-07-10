@@ -1,0 +1,10 @@
+# AwsSummit2024
+![IMG_0549](https://github.com/blahrmy/AwsSummit2024/assets/87888755/d7917309-395f-479a-9319-00d127bf13b5)
+![IMG_0551](https://github.com/blahrmy/AwsSummit2024/assets/87888755/b7bb1983-a83d-4223-875d-5b30af72d7a2)
+![IMG_0557](https://github.com/blahrmy/AwsSummit2024/assets/87888755/7cbe86a8-2056-480b-9029-be7f07f96f91)
+![IMG_0559](https://github.com/blahrmy/AwsSummit2024/assets/87888755/4d38d6ff-8377-4e40-bf74-5a50bd97dcf0)
+![IMG_0561](https://github.com/blahrmy/AwsSummit2024/assets/87888755/c1e46890-05ff-47e4-a703-932cdb31883a)
+![IMG_0564](https://github.com/blahrmy/AwsSummit2024/assets/87888755/bbfed82d-6b1d-46a1-aa69-51d02ffcf6b8)
+![IMG_0565](https://github.com/blahrmy/AwsSummit2024/assets/87888755/2f51ae50-f187-46fa-bad1-c07a84176621)
+![IMG_0567](https://github.com/blahrmy/AwsSummit2024/assets/87888755/606be3b2-c482-462c-b83c-8675a8ac30ef)
+![IMG_0568](https://github.com/blahrmy/AwsSummit2024/assets/87888755/3f83e984-8a0b-48ec-ab4e-f0e92a70a2bc)
